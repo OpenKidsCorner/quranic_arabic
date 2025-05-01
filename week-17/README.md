@@ -10,7 +10,7 @@ O Allah, I ask You for beneficial knowledge, goodly provision, and acceptable de
 
 ----
 
-**Note: We are starting our notes from Week 17. Because, we did not document our activities prior to this. We cannot also recommend any sources because we never used or followed any proper curiculum so far. Though, IN Sha Allah, we will Document different sources that were useful prior to this.**
+**Note: We are starting our notes from Week 17 (It's not our week 17. However, I roughly believe something like this can be started after ~4 months for kids above the age of 8). Because, we did not document our activities prior to this. We cannot also recommend any sources because we never used or followed any proper curiculum so far. Though, In Sha Allah, we will Document different sources that were useful prior to this.**
 
 
 **Disclaimer: We are biggners in learning arabic. Also, we are managing the the publishing of our journey within along with our other activities. Hence, the content will be full of mistakes. Please do not use the content as it is, and do your own research. May Allah protect us from saying anything that we should not. May Allah protect us and the audiance from the "Shar" of what we said or what we did not**
